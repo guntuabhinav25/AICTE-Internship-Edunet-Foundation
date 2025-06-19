@@ -1,1 +1,0 @@
-# AICTE-Internship-Edunet-Foundation
